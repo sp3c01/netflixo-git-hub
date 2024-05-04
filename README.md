@@ -1,2 +1,0 @@
-# netflixo-git-hub
-Lk
